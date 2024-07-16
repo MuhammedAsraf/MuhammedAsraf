@@ -2,7 +2,7 @@
 - 👀 I’m interested in EXPLORING
 - 🌱 I’m currently learning Cyber Security
 - 📫 How to reach me asrafcena2018@gmail.com
-- 😄 Pronouns: Asraf
+- 😄 Pronouns: He
   
 
 <!---
